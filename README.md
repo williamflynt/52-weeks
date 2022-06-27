@@ -27,5 +27,5 @@ This week, I want to...
 
 I'll record what I'm doing (before the week is over!) here. I'll try to upload the "artifact" as well - a link to a photo, a git repo, etcetera.
 
-1. [20-26 June] Hang a big garage shelf.
-2. [27 June - 03 July] Read the long neglected, very short book: `Keep Going: 10 Ways to Stay Creative in Good Times and Bad`
+1. [20 June] Hang a big garage shelf.
+2. [27 June] Read the long neglected, very short book: `Keep Going: 10 Ways to Stay Creative in Good Times and Bad`
