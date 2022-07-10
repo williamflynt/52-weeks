@@ -5,7 +5,8 @@ A catalog for once-weekly, outcome oriented activities, starting from 20 June, 2
 
 I started this personal, not-tech-specific project as an antidote to "spinning wheels with no traction."
 
-In fact, I think there IS traction, but it's hard to look back and see anything except big progress. Here's an effort to do really small things every week and record them.
+In fact, I think there IS traction, but it's hard to look back and see anything except the big progress we make. Here's an effort to do really small things every week and record them.
+Let's celebrate our little progress. 
 
 ## Guidelines
 
