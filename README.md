@@ -32,3 +32,4 @@ I'll record what I'm doing (before the week is over!) here. I'll try to upload t
 2. [27 June] Read the long neglected, very short book: `Keep Going: 10 Ways to Stay Creative in Good Times and Bad`
 3. [04 July] Run 3km on two mornings. 
 4. [11 July] Paint a picture from the list of travel photos I've taken and selected.
+5. [18 July] Run 3km on two weekdays and one weekend.
