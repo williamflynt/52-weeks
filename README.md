@@ -28,11 +28,18 @@ This week, I want to...
 
 I'll record what I'm doing (before the week is over!) here. I'll try to upload the "artifact" as well - a link to a photo, a git repo, etcetera.
 
-1. [20 Jun] Hang a big garage shelf.
-2. [27 Jun] Read the long neglected, very short book: `Keep Going: 10 Ways to Stay Creative in Good Times and Bad`
-3. [04 Jul] Run 3km on two mornings. 
-4. [11 Jul] Paint a picture from the list of travel photos I've taken and selected.
-5. [18 Jul] Run 3km on two weekdays and one weekend.
-6. [25 Jul] Finish the Domain Driven Design Distilled book.
-7. [01 Aug] Do system design for a product I've wanted to make - a self-linking knowledge base.
-8. [08 Aug] Put up some home-quality custom shelves with my new mitre saw!
+1.  [20 Jun] Hang a big garage shelf.
+2.  [27 Jun] Read the long neglected, very short book: `Keep Going: 10 Ways to Stay Creative in Good Times and Bad`
+3.  [04 Jul] Run 3km on two mornings. 
+4.  [11 Jul] Paint a picture from the list of travel photos I've taken and selected.
+5.  [18 Jul] Run 3km on two weekdays and one weekend.
+6.  [25 Jul] Finish the Domain Driven Design Distilled book.
+7.  [01 Aug] Do system design for a product I've wanted to make - a self-linking knowledge base.
+8.  [08 Aug] Put up some home-quality custom shelves with my new mitre saw!
+9.  [15 Aug] Stealth Item I
+10. [22 Aug] Stealth Item II
+11. [29 Aug] Stealth Item III - Complete!
+12. [05 Sep] The Artist's Way - Chapter 1
+13. [12 Sep] The Artist's Way - Chapter 2
+14. [19 Sep] The Artist's Way - Chapter 3
+15. [26 Sep] The Artist's Way - Chapter 4
