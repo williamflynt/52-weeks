@@ -39,7 +39,7 @@ I'll record what I'm doing (before the week is over!) here. I'll try to upload t
 9.  [15 Aug] Stealth Item I
 10. [22 Aug] Stealth Item II
 11. [29 Aug] Stealth Item III - Complete!
-12. [05 Sep] The Artist's Way - Chapter 1 & Sailboat Search
-13. [12 Sep] The Artist's Way - Chapter 2
-14. [19 Sep] The Artist's Way - Chapter 3
-15. [26 Sep] The Artist's Way - Chapter 4
+12. [05 Sep] Sailboat Search - Ballad++
+13. [12 Sep] The Artist's Way - Chapter 1
+14. [19 Sep] The Artist's Way - Chapter 2
+15. [26 Sep] The Artist's Way - Chapter 3
