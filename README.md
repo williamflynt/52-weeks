@@ -40,6 +40,8 @@ I'll record what I'm doing (before the week is over!) here. I'll try to upload t
 10. [22 Aug] Stealth Item II
 11. [29 Aug] Stealth Item III - Complete!
 12. [05 Sep] Sailboat Search - Ballad++
-13. [12 Sep] The Artist's Way - Chapter 1
-14. [19 Sep] The Artist's Way - Chapter 2
-15. [26 Sep] The Artist's Way - Chapter 3
+13. [12 Sep] The Artist's Way - Intro & Chapter 1
+14. [19 Sep] Sailboat Survey - Ballad
+15. [26 Sep] Sailboat Purchase, Insurance, Moorage, Etc...
+16. [03 Oct] Ballad to Tyee Marina
+17. [10 Oct] The Artist's Way - Chapter 2 & 3
