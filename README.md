@@ -38,7 +38,7 @@ I'll record what I'm doing (before the week is over!) here. I'll try to upload t
 8.  [08 Aug] Put up some home-quality custom shelves with my new mitre saw!
 9.  [15 Aug] Stealth Item I
 10. [22 Aug] Stealth Item II
-11. [29 Aug] Stealth Item III - Complete!
+11. [29 Aug] Stealth Item III - Complete - I'm a PE @ Amazon!
 12. [05 Sep] Sailboat Search - Ballad++
 13. [12 Sep] The Artist's Way - Intro & Chapter 1
 14. [19 Sep] Sailboat Survey - Ballad
