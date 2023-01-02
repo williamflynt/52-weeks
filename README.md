@@ -49,6 +49,10 @@ I'll record what I'm doing (before the week is over!) here. I'll try to upload t
 19. [24 Oct] 
 20. [31 Oct] 
 
+---
+
+2023-01-02
+
 Wow - this didn't last long!
 
 Owning a boat means you don't need a plan to occupy your time... I've done electrical work, plumbing, painting, woodworking, and I'm pretty good at scarying away sea lions.
