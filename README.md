@@ -48,3 +48,11 @@ I'll record what I'm doing (before the week is over!) here. I'll try to upload t
 18. [17 Oct] Ballad Checklist II - Basic operations
 19. [24 Oct] 
 20. [31 Oct] 
+
+Wow - this didn't last long!
+
+Owning a boat means you don't need a plan to occupy your time... I've done electrical work, plumbing, painting, woodworking, and I'm pretty good at scarying away sea lions.
+
+If you're burned out and need a hobby... buy a boat.
+
+Archived.
